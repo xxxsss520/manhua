@@ -1,53 +1,35 @@
- #### 打包漫画可提供无密码的版本 
+进来第一件事加下面qq和微信防丢失
 
 
- 
- #### 完结漫画列表1： 
+紧急通知QQ：2168099646被同行恶意举报，封了一天，有事找这个qq：3465128906 微信zhongshenhuiyuan198
+
+漫画升级，打包漫画，可提供无密码版本，方便观看
+
+删减版观看地址(在线)：http://y11.fanmugua.net (可用于看画风)
+
+经典完结韩漫（无删减）点击查看https://github.com/xiaohuaduomanhua66zhuhao/-5
 
 
- 
- ![完结列表1](https://upload-images.jianshu.io/upload_images/12061232-f3f90d475fca31c8.jpg) 
+热门连载韩漫(无删减版)点击查看https://github.com/xiaohuaduomanhua66zhuhao/-6
+
+3D漫画https://github.com/xiaohuaduomanhua66zhuhao/3d-
+
+免费福利https://github.com/xiaohuaduomanhua66zhuhao/-00
+
+自选购https://github.com/xiaohuaduomanhua66zhuhao/-33
 
 
- 
--## 完结列表1(有密码版) 编号1-5：https://pan.baidu.com/s/1Ev7s3R-GP2lprtTNvPhhhg 
+
+遇到问题
+如何观看(点击查看)https://upload-images.jianshu.io/upload_images/12061232-07a3629de61ded23.jpg
+安卓手机白屏问题(点击解决)https://upload-images.jianshu.io/upload_images/12061232-0cc5cea6f7a3c2cc.jpeg
+苹果手机PDF损坏(点击解决)https://upload-images.jianshu.io/upload_images/12061232-e5abadbacfacf92d.jpeg
 
 
- 
--## 完结列表1(有密码版) 编号6-7：https://pan.baidu.com/s/1UyiV8WMLM1kMS8bzrpodsQ 
+不管你有没有问题，一定要加qq3465128906
+
+qq2168099646
 
 
- 
--## 完结列表1(有密码版) 编号8-10：https://pan.baidu.com/s/1fmgmxxUYuuG9ZefdH2LjYQ 
 
-
- 
--## 完结列表1(有密码版) 编号11-30：https://pan.baidu.com/s/19OCS4aPqiNkEcD-VdXV9cg 
-
-
- 
-+## 完结列表1(有密码版) 编号1-10：https://pan.baidu.com/s/1NPuwhh2C633x0r_TP0upkw 
-
-
- 
-+## 完结列表1(有密码版) 编号11-20：https://pan.baidu.com/s/1uC9kL3Z_p5BJZhDL-lFbnQ 
-
-
- 
-+## 完结列表1(有密码版) 编号21-30：https://pan.baidu.com/s/1ujShIImF5xKPnu7_Jro-eA 
-
-
- 
-+ 
-
-
- 
- ## 完结列表1(有密码版) 编号31-68：https://pan.baidu.com/s/1zoqRAbaJ3rZjrjYZI0Gqmw 
-
-
- 
- ## 完结列表1(有密码版) 编号69-70：https://pan.baidu.com/s/1meZteBKp78ok2z4Jxh_OYA 
-
-
- 
- ## 完结列表1(有密码版) 编号71-80：https://pan.baidu.com/s/11gVBFgw4g6xOBzTrd9GIVA 
+新浪微博：“美少女小花朵漫画”H欢迎关注，每周五晚上9点半发小说，电影，漫画!!!!你懂得
