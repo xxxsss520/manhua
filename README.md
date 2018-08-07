@@ -2,7 +2,7 @@
 
 
 
-紧急通知，有事找这个qq：3465128906
+紧急通知，有事找这个qq：424529963
 
 
 
@@ -12,7 +12,7 @@
 
 删减版观看地址(在线)：http://y11.fanmugua.net (可用于看画风)
 
-漫画目录https://pan.baidu.com/s/17dl1dyrKwZGz9LVa91CZzw
+漫画目录
 
 经典完结韩漫（无删减）点击查看
 
@@ -30,10 +30,8 @@
 
 
 
-3D漫画
 
-
-自选购http://t.cn/ReWL3E7
+自选购http://t.cn/RDG4bEz
 
 
 
@@ -50,8 +48,5 @@
 苹果手机PDF损坏(点击解决)https://upload-images.jianshu.io/upload_images/12061232-e5abadbacfacf92d.jpeg
 
 
-不管你有没有问题，一定要加qq3465128906
+不管你有没有问题，一定要加qq424529963
 
-
-
-新浪微博：“小花朵内涵漫画520”欢迎关注，每周五晚上9点半发小说，电影，漫画!!!!你懂得
